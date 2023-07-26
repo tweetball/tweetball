@@ -16,7 +16,7 @@ As a programming novice, I am eager to develop my skills and have made the decis
 
 <h1>##Personality and Interests<h1/>
 
-I am driven by my curiosity, which constantly pushes me to seek new challenges and opportunities. I consider myself open-minded and free-spirited, always ready to embrace new experiences. Beyond coding, I have a range of interests and hobbies. I enjoy exploring different cultures, trying new foods, and connecting with people from diverse backgrounds. These experiences have broadened my perspective and taught me the importance of embracing diversity and fostering meaningful connections.
+I am driven by my curiosity, which constantly pushes me to seek new challenges and opportunities. I consider myself open-minded and free-spirited, always ready to embrace new experiences. Beyond coding, I have a range of interests and hobbies. I enjoy exploring different cultures, trying new foods, and connecting with people from diverse backgrounds. These experiences have broadened my perspective and taught me the importance of embracing diversity and fostering meaningful connections.I am a fan of the Douluo Continent series. I have finished watching the entire Douluo Continent series. If there are others who share the same interest, I would like to make friends and exchange thoughts with each other.These are just some of my extracurricular hobbies, but let's not let them hijack my focus on studying and work, alright?
 
 <h1>##Goals<h1/>
 
